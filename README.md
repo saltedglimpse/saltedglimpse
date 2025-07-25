@@ -1,16 +1,18 @@
-## Hi there 👋
+![](https://i.postimg.cc/J4X3756H/Untitled3024-20250725141546.png)
+![](https://i.postimg.cc/Hj1y8FZc/Untitled3025-20250725141954.png)
 
-<!--
-**saltedglimpse/saltedglimpse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+「 Glim 」꒱ Aster ; Cossie　ᛝ 18yrs ┆ ceramic ball-jointed puppet .
 
-Here are some ideas to get you started:
+Read E2R for basic info　◡　old toxic friends DNI　◡　I block freely.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://i.postimg.cc/Hj1y8FZc/Untitled3025-20250725141954.png)
+![](https://i.postimg.cc/c1f46C3C/Untitled3027-20250725145211.png)
+
+![](https://i.postimg.cc/Hj1y8FZc/Untitled3025-20250725141954.png)
+
+if anything is difficult to read, its all on my [rentry](https://rentry.co/glimcord) .
+
+Basic DNi, any weird fandom people..?  -16 (friends of friends is ok).
+
+![](https://i.postimg.cc/Hj1y8FZc/Untitled3025-20250725141954.png)
+![](https://i.postimg.cc/fLFXDVYv/Untitled3024-20250725141920.png)
